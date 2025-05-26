@@ -59,7 +59,7 @@ You **may not copy, redistribute, or reuse** any part of the designs, images, or
 Interested in learning more or collaborating?
 
 📮 **Email:** [manpeszrc@gmail.com](mailto:manpeszrc@gmail.com)
-📷 **Instagram:** [@manpesz]([https://instagram.com](https://www.instagram.com/manpesz/))  
+📷 **Instagram:** [@manpesz](https://www.instagram.com/manpesz/)  
 📘 **LinkedIn:** [coming soon]  
 🌐 **Official website:** in development
 
